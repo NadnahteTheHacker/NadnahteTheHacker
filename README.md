@@ -1,0 +1,4 @@
+-  Hi, I’m @NadnahteTheHacker
+-  Right now i'm using Github for Blooket hacks(I will not make my own blooket hacks).
+-  I hope I can use this account to have fun with hacks.
+-  I do not plan on making projects any time soon so do not wait on me for hacks.
